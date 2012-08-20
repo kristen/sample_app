@@ -1,1 +1,1 @@
-stoped at 3.5 exercises
+stopped at chapter 7
